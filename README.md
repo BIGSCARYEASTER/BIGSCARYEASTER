@@ -1,7 +1,7 @@
 ## Welcome to my profile!
 Lets get to know about me!
 
-Feel free to reach me at my scratch account "commandpro1234" or my email bigscaryeaster89@gmail.com
+Feel free to reach me at my scratch account "commandpro1234" or my email bigscarypersonal@gmail.com
 
 > I am 11 years old
 
